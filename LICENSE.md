@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with automatic new token sniper bot | multi-chain-support + new-token-detection, the #1 new token sniper bot. Includes multi-chain-support and
 
 
 
